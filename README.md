@@ -2,4 +2,4 @@
 
 Hi GitHub!
 
-I'm Saana and I'm happy to be  doing this tutorial. :)
+I like aeroplanes and sunny days.
